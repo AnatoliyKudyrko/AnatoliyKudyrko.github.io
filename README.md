@@ -1,1 +1,0 @@
-# anatoliykudyrko.github.io
